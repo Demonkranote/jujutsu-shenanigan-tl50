@@ -1,4 +1,4 @@
-
+Get ahead in jujutsu shenanigans with updated jujutsu shenanigans Scripts, featuring esp and auto-collect. Download now to dominate every match with ease and confidence, thanks to
 
 
 
